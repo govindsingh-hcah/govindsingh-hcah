@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @govindsingh-hcah
-- 👀 I’m interested in ... Web Devoping
+- 👀 I’m interested in ... Web Developing
 - 🌱 I’m currentlyworking HCAH
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
