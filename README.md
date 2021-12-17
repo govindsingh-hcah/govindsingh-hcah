@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @govindsingh-hcah
-- 👀 I’m interested in ... Web Developing,Gaming
+- 👀 I’m interested in ... Web Developing,Gaming,Space
 - 🌱 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
